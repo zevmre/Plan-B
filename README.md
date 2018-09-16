@@ -1,4 +1,4 @@
-# Some-Ideas
+# Plan-B
 Just write down some ideas which may be useful someday
 
 ## F.A.Q
