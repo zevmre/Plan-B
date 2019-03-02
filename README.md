@@ -47,5 +47,5 @@ Just write down some ideas which may be useful someday
 
 
 
-~~（求watch。。。）~~
+~~（求watch，求star。。。）~~
 
